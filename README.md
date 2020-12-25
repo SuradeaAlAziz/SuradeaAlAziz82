@@ -1,0 +1,2 @@
+# SuradeaAlAziz82
+UTS PRAK SISMIK
